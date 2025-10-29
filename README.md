@@ -1,0 +1,2 @@
+# SUPER-Trunfo
+Exercicio 
